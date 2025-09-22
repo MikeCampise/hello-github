@@ -1,1 +1,1 @@
-Penguins are cool. 
+Penguins are super cool. 
